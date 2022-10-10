@@ -41,6 +41,8 @@
 ![Screenshot (105)](https://user-images.githubusercontent.com/113337489/194827714-c7d630ee-8ef6-49cc-bf71-86b9e662149a.png)
 # Experiment 23
 ![Screenshot (103)](https://user-images.githubusercontent.com/113337489/194820087-1f0b8168-fabc-4756-828a-13b2681563ae.png)
+# Experiment 24
+![Screenshot (107)](https://user-images.githubusercontent.com/113337489/194828736-7d4c0e6b-75f7-4aa9-86e3-28ad9e347da8.png)
 # Experiment 25
 ![Screenshot (80)](https://user-images.githubusercontent.com/113337489/194542711-49f71e35-b1fc-43d3-81be-9c9573811999.png)
 # Experiment 27a
